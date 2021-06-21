@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @callmesusan
+- 👀 I’m interested in bringing great ideas to life.
+- 🌱 I’m currently learning a lot.
+- 💞️ I’m looking to collaborate on the future.
+- 📫 How to reach me...
